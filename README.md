@@ -1,0 +1,3 @@
+Hey! Hola, Soy Zoltii, soy nuevo en el tema de la programacion...
+Actualmente estoy queriendo aprender Python
+Tengo 15 años, soy Chileno y soy parte del Furry Fandom desde el 2021 hace 2 años, Espero que nos llevemos bien! nwn
